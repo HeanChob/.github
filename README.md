@@ -1,1 +1,1 @@
-# .github
+# HeanChob เห็นชอบ
